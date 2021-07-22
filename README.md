@@ -123,3 +123,6 @@
 
 
 ## Tips
+
+Made with many sleepless night 😴 🙈🙉🙊 #whenCanIRest
+### 2021 University of Denver bootCamp
